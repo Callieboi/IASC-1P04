@@ -26,4 +26,12 @@ Spaceship Art- "https://www.pxfuel.com/en/free-photo-oprzx"
 by pxfuel
 
 licensed under 
-creative commons (CC0)
+Creative Commons (CC0)
+
+---
+
+"A҉F҉O҉T҉I҉C҉A҉"
+by Humanfobia
+
+liscenced under 
+creative commons Attribution (4.0)
