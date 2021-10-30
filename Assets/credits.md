@@ -92,3 +92,9 @@ by Hippopx
 2017 - liscenced under 
 Creative Commons (0)
 
+---
+
+"broadcast control panel" https://pixabay.com/photos/broadcast-control-panel-analog-825540/
+by bogitw
+
+2014 - liscenced pixabay
