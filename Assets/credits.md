@@ -51,3 +51,19 @@ by Khrinx
 
 liscenced under
 Creative Commons (0)
+
+---
+
+"bridge black and white" - https://www.hippopx.com/en/bridge-black-and-white-black-white-architecture-bridge-man-made-structure-steel-69271
+by hippopx
+
+liscenced under 
+Creative Commons (0)
+
+---
+
+"window, light, dark" - https://www.hippopx.com/en/window-light-dark-gloomy-chamber-glow-creepy-9477
+by hippopx
+
+liscenced under
+Creative Commons (0)
