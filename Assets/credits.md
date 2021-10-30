@@ -121,3 +121,35 @@ Creative Commons Attribution (3.0)
 by GoranH
 
 2019 - liscenced under Pixabay Liscence
+
+---
+
+"Tools-Step_Ladder-Wooden-Dragged-04.wav"
+by DWOBoyle
+
+2018 - Liscenced under 
+Creative Commons Attribution (3.0)
+
+---
+
+"Death"
+by jacksonacademyashmore
+
+2017 - liscenced under
+Creative Commons (0)
+
+---
+
+"Beast Roar"
+by TheBuilder15
+
+2018 - liscenced under
+Creative Commons (0)
+
+---
+
+"demonic growl.mp3"
+by IFartInUrGeneralDirection
+
+2009 - Liscenced under 
+Creative Commons Attribution (3.0)
