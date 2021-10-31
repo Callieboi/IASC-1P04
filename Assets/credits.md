@@ -193,3 +193,11 @@ by Aris621
 
 2018 - Liscenced under 
 Creative Commons Attribution (3.0)
+
+---
+
+"coin collection" - https://www.pxfuel.com/en/free-photo-ouvef
+by pxfuel
+
+N/A - licensed under 
+Creative Commons (CC0)
