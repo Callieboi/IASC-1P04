@@ -6,4 +6,4 @@ Welcome to the website for my game created for IASC-1P04 at Brock University
 Try my game's prototype [here](https://github.com/Callieboi/IASC-1P04/blob/main/Prototype/The%20Eternity.html)
 
 ## Playtest
-playtest my updated game [here](https://github.com/Callieboi/IASC-1P04/Playtest%20Folder/Eternity.html)
+playtest my updated game [here](https://github.com/Callieboi/IASC-1P04/blob/main/Playtest%20Folder/Eternity.html)
