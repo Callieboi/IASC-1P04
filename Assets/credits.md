@@ -170,3 +170,19 @@ by pxhere
 N/A - licensed under 
 Creative Commons (CC0)
 
+---
+
+"HEAVY_SMASH_001.wav" 
+by JoelAudio
+
+2011 - Liscenced under 
+Creative Commons Attribution (3.0)
+
+---
+
+"Sword.wav"
+by hello_flowers
+
+licensed under
+Creative Commons (0)
+
