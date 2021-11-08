@@ -6,4 +6,4 @@ Welcome to the website for my game created for IASC-1P04 at Brock University
 Try my game's prototype [here](Prototype/The%20Eternity.html)
 
 ## Playtest
-playtest my updated game [here](Playtest%20Folder/Eternity.html)
+playtest my updated game [here](Playtest%20Folder/Playtest.mdl)
