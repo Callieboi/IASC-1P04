@@ -3,7 +3,7 @@
 
 ## Play the game
 
-Play the game [here](../prototype/Eternity.html).
+Play the game [here](../Prototype/Eternity.html).
 
 ## Complete the playtest survey
 
